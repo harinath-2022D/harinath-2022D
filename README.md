@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **harireddyakkati.91@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1736_1TaSSBKE7UqDFdFGY9O19Z9l6E1i/edit?usp=sharing&ouid=118327370180174374299&rtpof=true&sd=true](https://docs.google.com/document/d/1736_1TaSSBKE7UqDFdFGY9O19Z9l6E1i/edit?usp=sharing&ouid=118327370180174374299&rtpof=true&sd=true)
+- 📄 Know about my experiences 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
